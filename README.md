@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ajecty777
-- 👀 I’m interested in coding, art, stories and rollerblading. I also have a sweet tooth the size of mount Kilamanjaro.
+- 👀 I’m interested in coding, art, stories and rollerblading. I also have a sweet tooth the size of mount Kilimanjaro🤣
 - 🌱 I’m currently learning Full Stack Software Development
 - 💞️ I’m looking to collaborate on any coding project really, the more the merrier.
 - 📫 How to reach me: email: ajecty777@gmail.com
